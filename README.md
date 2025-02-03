@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Quintin
 - 👀 I’m interested in Astrology 💫
-- 🌱 I’m currently learning: Python, Calculus, Physics, Chemistry, Astrology, Music 🧪💫🪈
+- 🌱 I’m currently learning: Python, Calculus, Quantum Physics, Chemistry, Astrology, Music 🧪💫🪈
 - 💞️ I’m looking to collaborate on: nothing 🤧
 - 📫 How to reach me: don't 🙄
 - 😄 Pronouns: he/him
